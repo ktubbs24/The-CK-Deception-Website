@@ -2,7 +2,7 @@
 *because Jesus said that people that do not accept him will accept another man that comes in his own name and that Jesus sheep do not listen to the voice of a stranger but rather follows only His Voice so this meme is showing how many are following the voice of a dead man over following Jesus who is life and is alive*
 
 
-![Charlie's new follower update on instagram shows how many follow him over following Jesus.png](/zulu/Photos/Charlie's%20new%20follower%20update%20on%20instagram%20shows%20how%20many%20follow%20him%20over%20following%20Jesus.png)
+![[Charlie's new follower update on instagram shows how many follow him over following Jesus.png]]
 
 
 
