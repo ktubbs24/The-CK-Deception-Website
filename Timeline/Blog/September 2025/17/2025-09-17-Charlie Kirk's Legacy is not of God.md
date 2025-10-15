@@ -13,4 +13,4 @@ REMEMBER Jesus warned how people who reject Him will accept another man coming i
 
 Don’t be deceived brothers and sisters
 
-![Charlie Kirk's Legacy is not of God.png](/zulu/Photos/Charlie%20Kirk's%20Legacy%20is%20not%20of%20God.png)
+![[Charlie Kirk's Legacy is not of God.png]]
