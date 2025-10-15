@@ -1,6 +1,6 @@
 # 2025-09-29-Responding to someone who said that Charlie preached the gospel
 
-![Responding to someone who said that Charlie preached the gospel.jpeg](/zulu/Photos/Responding%20to%20someone%20who%20said%20that%20Charlie%20preached%20the%20gospel.jpeg)
+![[Responding to someone who said that Charlie preached the gospel.jpeg]]
 
 No, Charlie did not preach the gospel. I have saved a tremendous amount of videos because he is a part of the Great Deception. I was very familiar with Charlie over the years. The type of things that he preached were things that a lot of evangelicals or people within Christianity preach that make up their own gospel that doesn't save.
 
