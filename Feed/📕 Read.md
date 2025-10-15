@@ -2,8 +2,11 @@
 
 Latest Blog Post 
 
-| Cover                                                                               | Post                                            | Description | Published        |
-| ----------------------------------------------------------------------------------- | ----------------------------------------------- | ----------- | ---------------- |
-| ![youtube thumbnail dimensions.jpg](/zulu/Photos/youtube%20thumbnail%20dimensions.jpg) | [blog example](/Timeline/Blog/Blog%20Example.md) | \-          | October 05, 2025 |
-
+```dataview 
+TABLE WITHOUT ID dataCover AS "Cover", link(file.path, title) AS "Post", description AS "Description", date AS "Published"
+FROM ""
+WHERE type = "blog"
+SORT date DESC
+LIMIT 30
+```
 
