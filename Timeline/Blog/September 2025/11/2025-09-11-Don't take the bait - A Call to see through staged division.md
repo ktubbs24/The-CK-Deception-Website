@@ -1,6 +1,6 @@
 # 2025-09-11-Don't take the bait - A Call to see through staged division
 
-![Don't take the bait - A Call to see through staged division.png](/zulu/Photos/Don't%20take%20the%20bait%20-%20A%20Call%20to%20see%20through%20staged%20division.png)
+![[Don't take the bait - A Call to see through staged division.png]]
 
 I hate what happened to Charlie Kirk, but you can see it in the Facebook feed and Twitter feed of a lot of people.
 
