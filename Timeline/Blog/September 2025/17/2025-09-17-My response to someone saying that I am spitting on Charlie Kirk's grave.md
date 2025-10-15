@@ -1,7 +1,7 @@
 # 2025-09-17-My response to someone saying that I am spitting on Charlie Kirk's grave
-this is in response to [2025-09-17-Charlie Kirk's Legacy is not of God](/Timeline/Blog/September%202025/17/2025-09-17-Charlie%20Kirk's%20Legacy%20is%20not%20of%20God.md)
+this is in response to [[2025-09-17-Charlie Kirk's Legacy is not of God]]
 
-![My response to someone saying that I am spitting on Charlie Kirk's grave.png](/zulu/Photos/My%20response%20to%20someone%20saying%20that%20I%20am%20spitting%20on%20Charlie%20Kirk's%20grave.png)
+![[My response to someone saying that I am spitting on Charlie Kirk's grave.png]]
 
 [Denise Fahr](https://www.facebook.com/MoodyVictorian?__cft__[0]=AZXXcJ3GC5BF0WVsKLMeeiZIQ7g5h2JpDPNHaCHFPR8Q4SrER_HQJ-h2jCrgkzdAKwxmIFYYV3vWwxyO0MV9aYie4iKSal_Pb43no_wcQYt5ICgDR1x-4Rgd9E6sKqUhkBY9x1p6j6dQ1nOw9ChcoZYCw9D_RNqrs7-j6RGhEjtPkr4UP-IqXyzH-x5IgCLO6FA&__tn__=R]-R) you ask, "How can a person live for the praise or validation if they're dead?" The thing is, Satan tempts through the lust of the eyes, the lust of the flesh, and the pride of life. When somebody cares about their legacy, they care about their own glory. That is why it is written in the scriptures that we boast in the Lord. When a person boasts of themselves, they are boasting in their own legacy.
 
