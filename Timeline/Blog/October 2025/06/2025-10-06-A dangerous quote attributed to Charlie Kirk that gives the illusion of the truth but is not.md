@@ -17,4 +17,4 @@ I mean, sadly, the person who even posted this lied saying this is the truth. Do
 
 Colossians 2:8-10 Beware lest any man spoil you through philosophy and vain deceit, after the tradition of men, after the rudiments of the world, and not after Christ. For in him dwelleth all the fulness of the Godhead bodily. And ye are complete in him, which is the head of all principality and power:
 
-![A dangerous quote attributed to Charlie Kirk that gives.png](/zulu/Photos/A%20dangerous%20quote%20attributed%20to%20Charlie%20Kirk%20that%20gives.png)
+![[A dangerous quote attributed to Charlie Kirk that gives.png]]
