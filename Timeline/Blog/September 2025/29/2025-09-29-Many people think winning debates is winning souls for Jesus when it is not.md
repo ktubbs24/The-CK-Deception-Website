@@ -1,5 +1,5 @@
 # 2025-09-29-Many people think winning debates is winning souls for Jesus when it is not
-![Many people think winning debates is winning souls for Jesus when it is not.png](/zulu/Photos/Many%20people%20think%20winning%20debates%20is%20winning%20souls%20for%20Jesus%20when%20it%20is%20not.png)
+![[Many people think winning debates is winning souls for Jesus when it is not.png]]
 
 
 *When you’re just trying to chill but someone hands you a Bible like it’s a boxing glove… Jesus wasn’t talking about UFC, bro.*
